@@ -7,7 +7,7 @@
 
 예고드린 바와 같이, 새로운 프로그램의 핵심을 담당하고 저희와 함께 멋진 그림을 완성시켜 나갈 컨텐츠 크리에이터를 모시고자 합니다. <br>
 
- ▶ 지원서 작성 ➡➡  [[클릭](https://surveyl.ink/KZLJp_)]
+### ▶ 지원서 작성 ➡➡  [[클릭](https://surveyl.ink/KZLJp_)]
 
 
 <br>
@@ -48,4 +48,4 @@
  
  ---
 
- ▶ 지원서 작성 ➡➡  [[클릭](https://surveyl.ink/KZLJp_)]
+### ▶ 지원서 작성 ➡➡  [[클릭](https://surveyl.ink/KZLJp_)]
